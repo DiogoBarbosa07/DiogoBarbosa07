@@ -1,5 +1,5 @@
  - 👋 Hi, I’m @DiogoBarbosa07
-- 👀 I’m interested in Back End software development.
+- 👀 I’m interested in Backend and Frontend development.
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on voluntary projects.
 - 📫 How to reach me nasc_4784@outlook.com
