@@ -4,7 +4,7 @@
 - 💞️ I’m looking for an opportunity to start my career as a developer.
 - 📫 How to reach me nasc_4784@outlook.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: I enjoy working cooperatively in a team, I try to take the best out of a situation even when things are hard. I'm very curious and sometimes it gets me in awkward situations.
+- ⚡ Fun fact: I love anime, video games, sports and martial arts.
 
 <!---
 DiogoBarbosa07/DiogoBarbosa07 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
